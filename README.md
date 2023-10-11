@@ -6,7 +6,7 @@
 
 💞️ I'm eager to collaborate on exciting projects that push the boundaries of AI and contribute to cutting-edge advancements. Whether it's working with innovative companies or joining forces with fellow enthusiasts, I'm ready to make a meaningful impact. Let's create something extraordinary together! 🤝💡
 
-📫 You can reach me on Telegram as @drowan242 or find me on Instagram as @drowan242. Feel free to connect with me, discuss ideas, or simply geek out about AI! 📲💬
+📫 You can reach me on Telegram as https://t.me/drowan242 or find me on Instagram as https://instagram.com/abbasbaramaki. Feel free to connect with me, discuss ideas, or simply geek out about AI! 📲💬
 
 Looking forward to connecting with like-minded individuals and exploring the endless possibilities of AI! Let's make waves in the world of technology! 🌊🔥
 
