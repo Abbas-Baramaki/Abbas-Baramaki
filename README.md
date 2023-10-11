@@ -9,3 +9,5 @@
 📫 You can reach me on Telegram as @drowan242 or find me on Instagram as @drowan242. Feel free to connect with me, discuss ideas, or simply geek out about AI! 📲💬
 
 Looking forward to connecting with like-minded individuals and exploring the endless possibilities of AI! Let's make waves in the world of technology! 🌊🔥
+
+🌐 https://abbas-baramaki.ir 🌐 
